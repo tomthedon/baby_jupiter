@@ -1,3 +1,3 @@
 # baby_jupiter
 baby_jupiter 
-You have 9 more live jupiter don't be afraid to use them
+You have 9 more live jupiter live life on the edge 
